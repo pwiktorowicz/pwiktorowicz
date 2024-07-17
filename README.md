@@ -1,4 +1,4 @@
-- 👋 Hi, I’m.
+- 👋 Hi, I am.
 - 👀 I’m interested in lot of things.
 - 🌱 I’m currently learning new skils.
 - 💞️ I’m looking to collaborate on take over the world.
