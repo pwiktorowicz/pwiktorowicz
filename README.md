@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning new skils.
 - 💞️ I’m looking to collaborate on take over the world.
 - 📫 How to reach me? Try.
-- 😄 Pronouns: I'm mentally stable.
+- 😄 Pronouns: No, thank you.
 - ⚡ Fun fact: The plastic dinosaurs are made from real dinosaurs.
 
 <!---
